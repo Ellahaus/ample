@@ -1,0 +1,109 @@
++++
+        
+author = "Our Writers"
+        
+title = "Ebay Ghost Chair"
+        
+date = 2020-11-10T02:30:59.780155
+        
++++
+[ ![](https://i.ebayimg.com/images/g/cDYAAOSwdDpZcL5e/s-l300.jpg)](https://i.ebayimg.com/images/g/cDYAAOSwdDpZcL5e/s-l300.jpg) CLEAR GHOST TRANSPARENT MODERN PLASTIC DINING CHAIR / VANITY DRESSING CHAIR  7434914041003 | eBay
+[ ![](https://i.ebayimg.com/images/g/LbgAAOSwdzBcr3qA/s-l300.jpg)](https://i.ebayimg.com/images/g/LbgAAOSwdzBcr3qA/s-l300.jpg) Ghost Chair with Arms Philippe Starck Design Clear Plastic Dining Chair |  eBay
+[ ![](https://i.ebayimg.com/images/g/HmEAAOSwE9Bbs2~B/s-l300.jpg)](https://i.ebayimg.com/images/g/HmEAAOSwE9Bbs2~B/s-l300.jpg) Kartell Louis Ghost Chair ORIGINAL Philippe Starck Designer Armchair  Crystal | eBay
+[ ![](https://i.ebayimg.com/images/g/94gAAOSwh49bh3PZ/s-l300.jpg)](https://i.ebayimg.com/images/g/94gAAOSwh49bh3PZ/s-l300.jpg) Modern Ghost Chair with Arms in Transparent Crystal Pink Dining Accent  Chairs | eBay
+[ ![](https://i.ebayimg.com/images/g/kBoAAOSw4A1fndir/s-l640.jpg)](https://i.ebayimg.com/images/g/kBoAAOSw4A1fndir/s-l640.jpg) Victoria Ghost Chair by Kartell 4857/P9 for sale online | eBay
+[ ![](https://i.ebayimg.com/images/g/1FAAAOSwiEFfRi39/s-l640.jpg)](https://i.ebayimg.com/images/g/1FAAAOSwiEFfRi39/s-l640.jpg) Casper Modern Acrylic Dining Armchair in Clear, 1 Chair for sale online |  eBay
+[ ![](https://i.ebayimg.com/images/g/N5oAAOSwzcNb--Nu/s-l300.jpg)](https://i.ebayimg.com/images/g/N5oAAOSwzcNb--Nu/s-l300.jpg) 4 x Clear Ghost Chairs Transparent Modern Victoria Style Dining Chair UK |  eBay
+[ ![](https://i.ebayimg.com/images/g/9LEAAOSwPrdcQRkS/s-l640.png)](https://i.ebayimg.com/images/g/9LEAAOSwPrdcQRkS/s-l640.png) Two (2) Ghost Side Chairs in Clear Transparent Crystal Polycarbonate for  sale online | eBay
+[ ![](https://i.ebayimg.com/images/g/6~MAAOSwOlxcbDgm/s-l300.jpg)](https://i.ebayimg.com/images/g/6~MAAOSwOlxcbDgm/s-l300.jpg) Acrylic ghost chair vintage wedding tan clear, quality, no china import.  New | eBay
+[ ![](https://i.ebayimg.com/images/g/a2EAAOSwuHdcl65a/s-l400.jpg)](https://i.ebayimg.com/images/g/a2EAAOSwuHdcl65a/s-l400.jpg) Clear Ghost Dining Office Arm Chair Eiffel Chrome Legs Modern Design Vanity  UK | eBay
+[ ![](https://i.ebayimg.com/images/g/h~8AAOSwhBFeTmDt/s-l600.jpg)](https://i.ebayimg.com/images/g/h~8AAOSwhBFeTmDt/s-l600.jpg) Flash Furniture Ghost Chair with Arms in Transparent Crystal for sale  online | eBay
+[ ![](https://i.ebayimg.com/images/g/-vUAAOSw~KpcviOH/s-l300.jpg)](https://i.ebayimg.com/images/g/-vUAAOSw~KpcviOH/s-l300.jpg) Modern Ghost Chair in White with Oval Back - Dining Accent Chairs  848387021030 | eBay
+[ ![](https://i.ebayimg.com/images/g/8msAAOSwl95byD7Y/s-l300.jpg)](https://i.ebayimg.com/images/g/8msAAOSwl95byD7Y/s-l300.jpg) FRENCH LOUIS BELLA CLEAR GHOST DINING OCCASIONAL VANITY CHAIR TRANSPARENT  9145345601480 | eBay
+[ ![](https://i.ebayimg.com/images/g/OxYAAOSwlE9drMeb/s-l640.jpg)](https://i.ebayimg.com/images/g/OxYAAOSwlE9drMeb/s-l640.jpg) Kartell louis ghost chair-Philip Stark for sale online | eBay
+[ ![](https://i.ebayimg.com/images/g/33UAAOSwYcBbw4UK/s-l640.jpg)](https://i.ebayimg.com/images/g/33UAAOSwYcBbw4UK/s-l640.jpg) Kartell Authentic Louis Ghost Dining Chair Sunset Orange by Philippe Starck  for sale | eBay
+[ ![](https://i.ebayimg.com/images/g/zGgAAOSwVF1aOEBX/s-l300.jpg)](https://i.ebayimg.com/images/g/zGgAAOSwVF1aOEBX/s-l300.jpg) Ghost V2 French Style Arm Chair Quality Transparent Clear Dining Modern  Chairs. 5060526000071 | eBay
+[ ![](https://i.ebayimg.com/images/g/FhgAAOSw9NdXu~v4/s-l300.jpg)](https://i.ebayimg.com/images/g/FhgAAOSw9NdXu~v4/s-l300.jpg) Modern Ghost Chair with Arms in Transparent Crystal Yellow Dining Accent  Chairs 848387020996 | eBay
+[ ![](https://i.ebayimg.com/images/g/lakAAOSwqNVc1RJU/s-l300.jpg)](https://i.ebayimg.com/images/g/lakAAOSwqNVc1RJU/s-l300.jpg) 4PCS Modern Eiffel Dining Style Ghost Retro Chair Modern Grey White Black  Clear | eBay
+[ ![](https://i.ebayimg.com/images/g/JJEAAOSwTXhfiCYs/s-l300.jpg)](https://i.ebayimg.com/images/g/JJEAAOSwTXhfiCYs/s-l300.jpg) 4 x Clear Ghost Victoria Dining & Vanity Dressing Room Chair Transparent  Modern | eBay
+[ ![](https://i.ebayimg.com/images/g/4V0AAOSwWwBbhrC4/s-l640.jpg)](https://i.ebayimg.com/images/g/4V0AAOSwWwBbhrC4/s-l640.jpg) Niches Ghost Stark Dining Arm Chair - Clear for sale online | eBay
+[ ![](https://i.ebayimg.com/images/g/AE8AAOSwpltcr3jt/s-l300.jpg)](https://i.ebayimg.com/images/g/AE8AAOSwpltcr3jt/s-l300.jpg) Set of 2 Philippe Starck Louis XVI Ghost Chair with Arms | eBay
+[ ![](https://i.pinimg.com/474x/49/06/6d/49066de08f853e16169cabacf07a3f34.jpg)](https://i.pinimg.com/474x/49/06/6d/49066de08f853e16169cabacf07a3f34.jpg) Chair in Transparent Polycarbonate similar Victoria Ghost Stackable | eBay  | Ghost chair, Accent side chair, Victoria ghost chair
+[ ![](https://i.ebayimg.com/images/g/gzEAAOSwy79flF-3/s-l300.jpg)](https://i.ebayimg.com/images/g/gzEAAOSwy79flF-3/s-l300.jpg) HOME CRAFT BRAND NEW GHOST CHAIR | eBay
+[ ![](https://i.ebayimg.com/images/g/4xAAAOSwt2NcviRc/s-l300.jpg)](https://i.ebayimg.com/images/g/4xAAAOSwt2NcviRc/s-l300.jpg) Modern Ghost Chair in Transparent Yellow with Oval Back - Dining Accent  Chairs | eBay
+[ ![](https://i.ebayimg.com/images/g/9OQAAOSwIgNXvAOx/s-l300.jpg)](https://i.ebayimg.com/images/g/9OQAAOSwIgNXvAOx/s-l300.jpg) Modern Ghost Chair with Arms in White Polycarbonate Dining Accent Chairs  848387020989 | eBay
+[ ![](https://i.ebayimg.com/images/g/g4MAAOSwdP9fd6cG/s-l640.jpg)](https://i.ebayimg.com/images/g/g4MAAOSwdP9fd6cG/s-l640.jpg) Kartell Louis Ghost Chair ORIGINAL Philippe Starck Designer Armchair  Crystal for sale online | eBay
+[ ![](https://i.ebayimg.com/images/g/tw4AAOSwKWJcqyTY/s-l300.jpg)](https://i.ebayimg.com/images/g/tw4AAOSwKWJcqyTY/s-l300.jpg) Fusion Living Smoke Grey Ghost Style Plastic Victoria Dining Chair | eBay
+[ ![](https://i.pinimg.com/originals/84/57/e2/8457e2454ae233a1ee64e461f4dbee7c.jpg)](https://i.pinimg.com/originals/84/57/e2/8457e2454ae233a1ee64e461f4dbee7c.jpg) Ghost Arm Chair Transparent Clear Acrylic Philippe Starck Style Louis  Armchair | Louis ghost chair, Ghost chair, Ghost armchair
+[ ![](https://i.ebayimg.com/images/g/U-kAAOSwImRYmxrp/s-l300.jpg)](https://i.ebayimg.com/images/g/U-kAAOSwImRYmxrp/s-l300.jpg) 4 x Ghost Transparent Clear Chairs Dining Room Wedding Chair Bar Stackable  UK | eBay
+[ ![](https://i.pinimg.com/originals/73/8f/0f/738f0f3f6ca0a239773540f3a989b4a5.jpg)](https://i.pinimg.com/originals/73/8f/0f/738f0f3f6ca0a239773540f3a989b4a5.jpg) modern acrylic spirit armless dining chair by moderntomato : smoke  transparent | eBay | Victoria ghost chair, Kartell victoria ghost chair, Ghost  chair
+[ ![](https://i.ebayimg.com/images/g/St0AAOSwudpfgGWb/s-l400.jpg)](https://i.ebayimg.com/images/g/St0AAOSwudpfgGWb/s-l400.jpg) Dining Room Ghost Chairs Clear Office Kitchen Lounge Chair Victorian Style  | eBay
+[ ![](https://i.ebayimg.com/images/g/enoAAOSwltpeydZG/s-l300.jpg)](https://i.ebayimg.com/images/g/enoAAOSwltpeydZG/s-l300.jpg) 2 x Authentic Kartell Louis Ghost Chair - Transparent Smoke Grey | eBay
+[ ![](https://i.ebayimg.com/images/g/FFcAAOSwaB5XvACZ/s-l300.jpg)](https://i.ebayimg.com/images/g/FFcAAOSwaB5XvACZ/s-l300.jpg) Modern Ghost Chair with Arms in Black Polycarbonate Dining Accent Chairs  848387000028 | eBay
+[ ![](https://i.ebayimg.com/images/g/NkoAAOSwibddl2Nk/s-l640.jpg)](https://i.ebayimg.com/images/g/NkoAAOSwibddl2Nk/s-l640.jpg) Transparent Clear Modern Ghost Eiffel Dining Chair Office Retro Chrome Legs  UK for sale online | eBay
+[ ![](https://i.ebayimg.com/images/g/n8IAAOSwVjheBkVo/s-l400.jpg)](https://i.ebayimg.com/images/g/n8IAAOSwVjheBkVo/s-l400.jpg) 150 Modern Ghost Chairs With Wide Seat | eBay
+[ ![](https://i.ebayimg.com/images/g/GoYAAOSwV6hd9qpR/s-l640.jpg)](https://i.ebayimg.com/images/g/GoYAAOSwV6hd9qpR/s-l640.jpg) 4 Pk. Ghost Chair in Transparent Crystal with Oval Back for sale online |  eBay
+[ ![](https://i.ebayimg.com/images/g/~NQAAOSwcVZbRnOT/s-l300.jpg)](https://i.ebayimg.com/images/g/~NQAAOSwcVZbRnOT/s-l300.jpg) Ghost Chair with Gold Metal Base 889142477822 | eBay
+[ ![](https://i.ebayimg.com/images/g/OLgAAOSwLKxfndis/s-l1600.jpg)](https://i.ebayimg.com/images/g/OLgAAOSwLKxfndis/s-l1600.jpg) Victoria Ghost Chair by Kartell 4857/P9 for sale online | eBay
+[ ![](https://i.ebayimg.com/images/g/jMcAAOSweSFdfjYT/s-l640.jpg)](https://i.ebayimg.com/images/g/jMcAAOSweSFdfjYT/s-l640.jpg) niches Ghost V2 Dining Arm Chair - Clear for sale online | eBay
+[ ![](https://i.ebayimg.com/images/g/vmMAAOSwdCVewXtH/s-l300.jpg)](https://i.ebayimg.com/images/g/vmMAAOSwdCVewXtH/s-l300.jpg) Flash Furniture Ghost Side Chair in Transparent Crystal, 1 Pack  691160786158 | eBay
+[ ![](https://i.ebayimg.com/images/g/ieUAAOSwT9lcviTr/s-l300.jpg)](https://i.ebayimg.com/images/g/ieUAAOSwT9lcviTr/s-l300.jpg) Modern Ghost Chair in Black with Oval Back - Dining Accent Chairs | eBay
+[ ![](https://i.ebayimg.com/images/g/mhoAAOSwygFemTGK/s-l300.jpg)](https://i.ebayimg.com/images/g/mhoAAOSwygFemTGK/s-l300.jpg) Modern Design Ghost Side Chair in Transparent Crystal - Dining Accent Chairs  | eBay
+[ ![](https://i.ebayimg.com/images/g/pugAAOSwMkdcQRyZ/s-l640.png)](https://i.ebayimg.com/images/g/pugAAOSwMkdcQRyZ/s-l640.png) Clear Ghost Chair Indoor Dining Modern Armchair Seat Solid Transparent  Crystal for sale online | eBay
+[ ![](https://i.ebayimg.com/images/g/sbEAAOSwgeJerZ01/s-l640.jpg)](https://i.ebayimg.com/images/g/sbEAAOSwgeJerZ01/s-l640.jpg) Poltroncina Louis Ghost di Kartell for sale online | eBay
+[ ![](https://i.ebayimg.com/images/g/jrQAAOSwEhJfBgQv/s-l640.png)](https://i.ebayimg.com/images/g/jrQAAOSwEhJfBgQv/s-l640.png) 2 Lexy Eiffel Base Ghost Chair (Free Shipping) for sale online | eBay
+[ ![](https://i.ebayimg.com/thumbs/images/g/Qd0AAOSwFuJduzWl/s-l300.jpg)](https://i.ebayimg.com/thumbs/images/g/Qd0AAOSwFuJduzWl/s-l300.jpg) Ghost Chair for sale | In Stock | eBay
+[ ![](https://i.pinimg.com/originals/56/22/95/562295e95f204b5fa276ad39c0f2b723.jpg)](https://i.pinimg.com/originals/56/22/95/562295e95f204b5fa276ad39c0f2b723.jpg) Electronics, Cars, Fashion, Collectibles, Coupons and More | eBay | Clear  dining chairs, Clear chairs, Retro dining rooms
+[ ![](https://i.ebayimg.com/images/g/gTQAAOSwZq9fm5Qr/s-l300.jpg)](https://i.ebayimg.com/images/g/gTQAAOSwZq9fm5Qr/s-l300.jpg) Ghost Chair Victoria Style Transparent Oval Clear Soild Dining Room Chair |  eBay
+[ ![](https://i.ebayimg.com/images/g/UJAAAOSwLcZe0Sd-/s-l300.jpg)](https://i.ebayimg.com/images/g/UJAAAOSwLcZe0Sd-/s-l300.jpg) Original Kartell Louis Philippe Starcke Ghost Chair x 4 | eBay
+[ ![](https://i.pinimg.com/originals/76/d0/03/76d0039238c43f98a0ec911a3dd59954.jpg)](https://i.pinimg.com/originals/76/d0/03/76d0039238c43f98a0ec911a3dd59954.jpg) Pin on Decor Lucite
+[ ![](https://i.ebayimg.com/thumbs/images/g/YGcAAOSwKblfgHkh/s-l225.jpg)](https://i.ebayimg.com/thumbs/images/g/YGcAAOSwKblfgHkh/s-l225.jpg) Ghost Chair for sale | In Stock | eBay
+[ ![](https://i.ebayimg.com/images/g/Vw0AAOSwD5NfEkKS/s-l300.jpg)](https://i.ebayimg.com/images/g/Vw0AAOSwD5NfEkKS/s-l300.jpg) 4PC Ghost Dining Side Armchair Transparent Crystal Table Side Chairs Clear  Smoke 643665853507 | eBay
+[ ![](https://i.ebayimg.com/images/g/dS4AAOSwtyFdD45y/s-l640.jpg)](https://i.ebayimg.com/images/g/dS4AAOSwtyFdD45y/s-l640.jpg) Ghost Masters Transparent Clear Dining Chair for sale | eBay
+[ ![](https://i.ebayimg.com/images/g/FKcAAOSwOT9cqySD/s-l300.jpg)](https://i.ebayimg.com/images/g/FKcAAOSwOT9cqySD/s-l300.jpg) Fusion Living Crystal Clear Ghost Style Plastic Louis Armchair | eBay
+[ ![](https://i.ebayimg.com/images/g/qiAAAOSwNmhfQmhk/s-l300.jpg)](https://i.ebayimg.com/images/g/qiAAAOSwNmhfQmhk/s-l300.jpg) 2pcs lilac Ghost Dining Chairs Transparent Starck Louis Stackable Armchair  | eBay
+[ ![](https://i.ebayimg.com/images/g/YmcAAOSwDftbh2Z7/s-l640.jpg)](https://i.ebayimg.com/images/g/YmcAAOSwDftbh2Z7/s-l640.jpg) Modern Ghost Chair with Arms in Transparent Crystal/Dining Table Chairs for  sale online | eBay
+[ ![](https://i.ebayimg.com/thumbs/images/g/nhkAAOSw-AFfVLed/s-l300.jpg)](https://i.ebayimg.com/thumbs/images/g/nhkAAOSw-AFfVLed/s-l300.jpg) kartell ghost products for sale | eBay
+[ ![](https://i.pinimg.com/564x/d8/89/61/d88961544b0ce8fc3b8cc6ec3b00252f.jpg)](https://i.pinimg.com/564x/d8/89/61/d88961544b0ce8fc3b8cc6ec3b00252f.jpg) Set of 3 Eames Style Dining Chairs Transparent Clear Metal Legs (See Note)  | Home & Garden, Furnitur… | Dining chairs, Eames style dining chair, Clear  dining chairs
+[ ![](https://i.ebayimg.com/thumbs/images/g/JhgAAOSwR29ZNT-v/s-l225.jpg)](https://i.ebayimg.com/thumbs/images/g/JhgAAOSwR29ZNT-v/s-l225.jpg) Ghost Chair for sale | eBay
+[ ![](https://i.ebayimg.com/images/g/SswAAOSw5wRay5jV/s-l300.jpg)](https://i.ebayimg.com/images/g/SswAAOSw5wRay5jV/s-l300.jpg) Mid-Century Modern. Set Of (6) Armed Lucite (Ghost) Chairs. Circa 1970s. |  eBay
+[ ![](https://i.ebayimg.com/thumbs/images/g/HvQAAOSwIsdeU9QJ/s-l300.jpg)](https://i.ebayimg.com/thumbs/images/g/HvQAAOSwIsdeU9QJ/s-l300.jpg) kartell ghost products for sale | eBay
+[ ![](https://i.ebayimg.com/images/g/rrcAAOSw8Ehe0XJT/s-l640.jpg)](https://i.ebayimg.com/images/g/rrcAAOSw8Ehe0XJT/s-l640.jpg) Kartell Louis Ghost Chair for sale online | eBay
+[ ![](https://sellercore.com/image.php?id=302162)](https://sellercore.com/image.php?id=302162) Set of 2 Philippe Starck Louis XVI Ghost Chair with Arms | eBay
+[ ![](https://i.ebayimg.com/thumbs/images/g/qikAAOSwewdfV~WE/s-l300.jpg)](https://i.ebayimg.com/thumbs/images/g/qikAAOSwewdfV~WE/s-l300.jpg) kartell ghost products for sale | eBay
+[ ![](https://i.ebayimg.com/thumbs/images/g/I24AAOSwXYpc~tDe/s-l225.jpg)](https://i.ebayimg.com/thumbs/images/g/I24AAOSwXYpc~tDe/s-l225.jpg) Ghost Chair for sale | In Stock | eBay
+[ ![](https://i.ebayimg.com/images/g/pPAAAOSwixNfV3hi/s-l300.jpg)](https://i.ebayimg.com/images/g/pPAAAOSwixNfV3hi/s-l300.jpg) Kartell Louis Ghost Chair White | eBay
+[ ![](https://i.pinimg.com/originals/dc/1c/24/dc1c24aea454d105fa282979320e4c84.jpg)](https://i.pinimg.com/originals/dc/1c/24/dc1c24aea454d105fa282979320e4c84.jpg) French Bella Ghost Transparent Chair. Inspired by a classic French design,  this modern perspex chair truly is a one of a kind decor item that will set  your inte…
+[ ![](https://i.ebayimg.com/images/g/UCAAAOSwUxJdJYnt/s-l640.jpg)](https://i.ebayimg.com/images/g/UCAAAOSwUxJdJYnt/s-l640.jpg) Plexiglass Acrylic Ghost Chair Original Elizabeth Siesta Exclusiv.keine  China for sale online | eBay
+[ ![](https://i.pinimg.com/originals/0c/df/fb/0cdffb8259c507a8be68a4697e6a820c.jpg)](https://i.pinimg.com/originals/0c/df/fb/0cdffb8259c507a8be68a4697e6a820c.jpg) Philippe Starck Ghost Chair | eBay | Victoria ghost chair, Kartell victoria ghost  chair, Ghost chair
+[ ![](https://i.ebayimg.com/thumbs/images/g/~HoAAOSwysFcGX1u/s-l300.jpg)](https://i.ebayimg.com/thumbs/images/g/~HoAAOSwysFcGX1u/s-l300.jpg) Kartell Chair for sale | In Stock | eBay
+[ ![](https://i.ebayimg.com/images/g/FaIAAOSwMmlbUeTo/s-l225.jpg)](https://i.ebayimg.com/images/g/FaIAAOSwMmlbUeTo/s-l225.jpg) Kartell Louis Ghost Chair ORIGINAL Philippe Starck Designer Armchair  Crystal for sale online | eBay
+[ ![](https://i.ebayimg.com/images/g/k7AAAOSwVoFfJ8-k/s-l300.jpg)](https://i.ebayimg.com/images/g/k7AAAOSwVoFfJ8-k/s-l300.jpg) A Set Of Four Acrylic Ghost Chairs Clear Chair Transparent Handles Dining  Chair | eBay
+[ ![](https://i.ebayimg.com/images/g/NLgAAOSw8V9eJwTo/s-l300.jpg)](https://i.ebayimg.com/images/g/NLgAAOSw8V9eJwTo/s-l300.jpg) Flash Furniture Elon Series Ghost Chair with Gold Metal Base and Alonza  Serie... 6264484894355 | eBay
+[ ![](https://i.ebayimg.com/images/g/EO0AAOSwlPFeFg66/s-l300.jpg)](https://i.ebayimg.com/images/g/EO0AAOSwlPFeFg66/s-l300.jpg) Authentic Kartell Louis Ghost chairs (1 or set of 2) -LA pick up only | eBay
+[ ![](https://i.pinimg.com/originals/b6/ab/98/b6ab985a198ffe1826ed92e927903bf3.png)](https://i.pinimg.com/originals/b6/ab/98/b6ab985a198ffe1826ed92e927903bf3.png) Modern 80CM Clear Round Dining Table and 2/4 Ghost Chairs Lounge Bar Office  Home | eBay | Glass dining table, Round dining table, Round modern table
+[ ![](https://i.ebayimg.com/images/g/Xj0AAOSwCB1d7eXk/s-l640.jpg)](https://i.ebayimg.com/images/g/Xj0AAOSwCB1d7eXk/s-l640.jpg) Ghost Side Arm Chair Transparent Clear Crystal for Table, Desk or Dressing  Room for sale online | eBay
+[ ![](https://i.pinimg.com/originals/3d/20/ac/3d20ac9104569f0883a17d972d66bf45.gif)](https://i.pinimg.com/originals/3d/20/ac/3d20ac9104569f0883a17d972d66bf45.gif) Philipe Starck Louis Ghost Clear ARM Side Dining Chair | eBay_$150 ea |  Side chairs dining, Louis ghost chair, Dining room arm chairs
+[ ![](https://i.ebayimg.com/images/g/hcYAAOSw~5ReTg3K/s-l640.jpg)](https://i.ebayimg.com/images/g/hcYAAOSw~5ReTg3K/s-l640.jpg) Flash Furniture Ghost Chair in Transparent Crystal Square Back for sale  online | eBay
+[ ![](https://i.ebayimg.com/00/s/ODAwWDgwMA==/z/gxYAAOSwQsdbRnOT/$_57.JPG)](https://i.ebayimg.com/00/s/ODAwWDgwMA==/z/gxYAAOSwQsdbRnOT/$_57.JPG) Ghost Chair with Gold Metal Base 889142477822 | eBay
+[ ![](https://i.ebayimg.com/images/g/5KYAAOSwKF9fc49Y/s-l640.jpg)](https://i.ebayimg.com/images/g/5KYAAOSwKF9fc49Y/s-l640.jpg) Clear Ghost Dining Office Arm Chair Eiffel Chrome Legs Modern Design Vanity  UK for sale online | eBay
+[ ![](https://i.pinimg.com/originals/a8/80/2a/a8802aa96b6313c7428110c64a06c190.jpg)](https://i.pinimg.com/originals/a8/80/2a/a8802aa96b6313c7428110c64a06c190.jpg) Casper Dining Armchair in Clear | Home &amp; Garden, Furniture, Chairs |  eBay! | Clear dining chairs, Dining arm chair, Louis ghost chair
+[ ![](https://i.ebayimg.com/images/g/r1oAAOSwUvBemTQ8/s-l300.jpg)](https://i.ebayimg.com/images/g/r1oAAOSwUvBemTQ8/s-l300.jpg) Modern Design Ghost Side Chair in Black Polycarbonate - Dining Accent Chairs  | eBay
+[ ![](https://i.ebayimg.com/images/g/W~gAAOSwO-9emTVF/s-l300.jpg)](https://i.ebayimg.com/images/g/W~gAAOSwO-9emTVF/s-l300.jpg) Modern Design Ghost Side Chair in White Polycarbonate - Dining Accent Chairs  | eBay
+[ ![](https://i.ebayimg.com/images/g/dXgAAOSw57ZccwEv/s-l300.jpg)](https://i.ebayimg.com/images/g/dXgAAOSw57ZccwEv/s-l300.jpg) 2 LOUIS Used BLACK Philippe Starck DESIGN Ghost Chairs Acrylic Copy  36x21x21 | eBay
+[ ![](https://i.ebayimg.com/images/g/DDwAAOSwXGtZpG8x/s-l300.jpg)](https://i.ebayimg.com/images/g/DDwAAOSwXGtZpG8x/s-l300.jpg) Kartell Louis Ghost chairs - Opaque white - Save 30% | eBay
+[ ![](https://i.ebayimg.com/images/g/GS4AAOSwvndfWZus/s-l300.jpg)](https://i.ebayimg.com/images/g/GS4AAOSwvndfWZus/s-l300.jpg) 4 Pcs Ghost Clear Dining Chair Transparent Philippe Starck Style French  Chairs | eBay
+[ ![](https://i.pinimg.com/originals/31/9e/39/319e39b22ef6e1db3b00777230844f95.jpg)](https://i.pinimg.com/originals/31/9e/39/319e39b22ef6e1db3b00777230844f95.jpg) Acrylic ghost chair vintage wedding tan clear, quality, no china import.  New | eBay | Acrylic chair, Dining chairs, Chair
+[ ![](https://i.ebayimg.com/images/g/Db0AAOSwu~ld0oE-/s-l300.jpg)](https://i.ebayimg.com/images/g/Db0AAOSwu~ld0oE-/s-l300.jpg) Moda TUB Ghost Eiffel Dining Armchair DS Chair Retro Vintage Scandinavian  Style | eBay
+[ ![](https://i.ebayimg.com/00/s/NDUwWDgwMA==/z/uocAAOSwvG9fpm78/$_118.PNG)](https://i.ebayimg.com/00/s/NDUwWDgwMA==/z/uocAAOSwvG9fpm78/$_118.PNG) Ghost chairs for Sale | Chairs, Stools & Other Seating | Gumtree
+[ ![](https://i.ebayimg.com/images/g/IXQAAOSw1V9dr4q5/s-l225.jpg)](https://i.ebayimg.com/images/g/IXQAAOSw1V9dr4q5/s-l225.jpg) Victoria Ghost Chair by Kartell 4857/P9 for sale online | eBay
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/gXsAAOSweNBfnBwc/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/gXsAAOSweNBfnBwc/$_99.JPG) Ghost chairs for Sale | Chairs, Stools & Other Seating | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/fwMAAOSwsblfTMw4/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/fwMAAOSwsblfTMw4/$_99.JPG) Ghost chairs for Sale | Chairs, Stools & Other Seating | Gumtree
+[ ![](https://i.ebayimg.com/images/g/zkQAAOSwxipfGr6~/s-l300.jpg)](https://i.ebayimg.com/images/g/zkQAAOSwxipfGr6~/s-l300.jpg) Clear Ghost Victoria Dining & Vanity Dressing Room Chair Transparent Modern  | eBay
+[ ![](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/wF0AAOSwWSZflBl7/$_118.PNG)](https://i.ebayimg.com/00/s/ODAwWDYwMA==/z/wF0AAOSwWSZflBl7/$_118.PNG) Ghost chairs for Sale | Chairs, Stools & Other Seating | Gumtree
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/PbUAAOSw7lxfisrg/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/PbUAAOSw7lxfisrg/$_99.JPG) Ghost chairs for Sale | Chairs, Stools & Other Seating | Gumtree
+[ ![](https://i.pinimg.com/originals/ac/3c/fb/ac3cfb2ece731efb82a472bdc3442d29.jpg)](https://i.pinimg.com/originals/ac/3c/fb/ac3cfb2ece731efb82a472bdc3442d29.jpg) 4PK Clear Chair Lucite Plexiglass Dinning Chair Event Wedding Chair  Tradeshow | Clear chairs, Acrylic chair, Plexiglass
+[ ![](https://i.dailymail.co.uk/i/pix/2014/07/31/article-2711385-20241C7600000578-966_634x642.jpg)](https://i.dailymail.co.uk/i/pix/2014/07/31/article-2711385-20241C7600000578-966_634x642.jpg) Melbourne man tries to sell 'ghost chair that moves around ON ITS OWN' |  Daily Mail Online
+[ ![](https://i.ebayimg.com/images/g/H2YAAOSworRfd6cV/s-l1600.jpg)](https://i.ebayimg.com/images/g/H2YAAOSworRfd6cV/s-l1600.jpg) Kartell Louis Ghost Chair ORIGINAL Philippe Starck Designer Armchair  Crystal for sale online | eBay
+[ ![](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/u1sAAOSwHoNfhUtc/$_99.JPG)](https://i.ebayimg.com/00/s/MTAyNFg3Njg=/z/u1sAAOSwHoNfhUtc/$_99.JPG) Ghost chairs for Sale | Chairs, Stools & Other Seating | Gumtree
+[ ![](https://image.architonic.com/img_pfm2-4/203/4899/victoria1-b.jpg)](https://image.architonic.com/img_pfm2-4/203/4899/victoria1-b.jpg) LOUIS GHOST - Chairs from Kartell | Architonic
